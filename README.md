@@ -20,6 +20,6 @@
  
 
 
-If you like what I do, maybe consider buying me a doughnut 🥺👉👈
+If you like what I do, maybe consider buying me a coffe/doughnut 🥺👉👈
 
 <a href="https://www.buymeacoffee.com/anishkyadav" target="_blank"><img src="https://cdn.buymeacoffee.com/buttons/v2/default-red.png" alt="Buy Me A Coffee" width="150" ></a>
